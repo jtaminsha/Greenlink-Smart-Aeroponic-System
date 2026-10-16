@@ -1,1 +1,0 @@
-# Greenlink-Smart-Aeroponic-System
